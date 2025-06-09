@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/aadits1965](https://github.com/aadits1965)
 
-- 📫 How to reach me **aadits83_off@gmail.com**
+- 📫 How to reach me **aadits83.off@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
